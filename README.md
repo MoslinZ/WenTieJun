@@ -3,7 +3,7 @@
 更多内幕请看超长存档👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 
-持续更新公知『公知温铁军』与『公知茅于轼』NGO履历👆👆👆
+持续更新投机分子『公知温铁军』与『公知茅于轼』NGO履历👆👆👆
 
 
 
@@ -79,7 +79,6 @@ https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.sh
 搜狐财经【中国经济思想库】茅于轼、温铁军、林毅夫、郎咸平等人
 https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s221226209.shtml
 ![中国经济思想库高清图](https://github.com/MoslinZ/TiejunWen/blob/main/s221226209.shtml.jpg)
-
 
 ### :surfer:经历
 
@@ -206,7 +205,7 @@ https://web.archive.org/web/20040917184256/http://business.sohu.com/maoyushi.sht
 
 天则经济研究所常务理事，当代著名经济学家。1929年1月14日出生于南京，父亲茅以新是铁路机械工程师，伯父茅以升是桥梁专家（江湖传言茅于轼其是汪精卫的后代，搜“茅于轼 汪精卫”真假未知）。1946年毕业于重庆南开中学，同年考入上海交通大学，1950年从机械系毕业，分配在齐齐哈尔铁路局，任火车司机、技术员、工程师；1955年调北京铁道科学研究所，任助理研究员，从事机车车辆性能研究；1958年被打成右派温铁军恰巧在1978年兼职“右派平反改正”工作，“文革”时被赶往大同机车厂劳动；1975年开始从事微观经济学研究，1979年提出择优分配原理，1985年出版《择优分配原理》。同年调中国社会科学院美国研究所任副研究员、研究员；1986年赴美国哈佛大学任注册访问学者；1987年回国，此后7年内担任非洲能源政策研究网顾问；1990年应澳大利亚昆士兰大学经济系之聘任高级讲师，讲授研究生班的微观经济学；1993年参与创办北京天则经济研究所，并任所长、理事长，现为该所常务理事。1979年提出择优分配原理，重新构造了整个微观经济学。1985年起即关系道德问题，以后作了近10年的研究和思考，1997年提出人与人的等价关系，从对等关系出发，对人权、自由主义、道德、民主等观念都可以作出更深入的解释。茅于轼主要兼职如下：亚洲开发银行注册顾问、中国环境与发展国际合作委员会能源工作组中方专家、山东矿业学院、广东外语外贸大学、西北大学兼职教授、太平洋经济合作委员会能源组国际顾问组成员、LEAD国际培训项目中国国家理事会成员、China Economic Review顾问编辑、中国能源研究会副理事长。
 
-茅于轼：妻赵燕玲，子茅为星（1957年生），女茅燕星（1965年生）。
+茅于轼：妻赵燕玲，子茅为星（1957年生），女茅燕星（1965年生）。　
 
 民族复兴网揭秘天则经济研究所：竟是带路党的大本营
 https://web.archive.org/web/20240101101900/https://www.mzfxw.com/e/action/ShowInfo.php?classid=12&id=69653
@@ -238,7 +237,7 @@ https://web.archive.org/web/20030404205422/http://www.grchina.com/qiang/lead/ori
 
 温铁军2001年在LEAD-China交流研讨(红色标注区) Dr. Wen Tiejun, Editor-in-Chief, China Reforms Journal
 https://web.archive.org/web/20080828191036/http://www.lead.org.cn/leadcn/national/curriculum/year1/cohort9.htm
-![LEAD图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/cohort9.html.jpg)
+![LEAD图](https://github.com/MoslinZ/TiejunWen/blob/main/cohort9.jpg)
 
 IED/LEAD-China 举办第五期“可持续发展领导型人才国内培训班”茅于轼、温铁军、李来来
 https://web.archive.org/web/20080828190513/http://www.lead.org.cn/leadcn/national/curriculum/year1/LEADChina_5th_zh.htm
@@ -250,10 +249,10 @@ https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 # 天则经济研究所
 以茅于轼为首的中国带路党大本营【【天则经济研究所】】超过百人学术委员会研究员温铁军位列其中
 https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
-![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
+![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.jpg)
 
 天则内部论文稿1996年 温铁军/茅于轼
-![天则内部论文稿1996年图](https://github.com/MoslinZ/TiejunWen/blob/main/paper96.html.jpg)
+![天则内部论文稿1996年图](https://github.com/MoslinZ/TiejunWen/blob/main/paper96.jpg)
 https://web.archive.org/web/20030411012600/http://www.unirule.org.cn/Academia/paper96.html
 
 《中国制度变迁的案例研究》第二期『茅于轼温铁军』
