@@ -268,6 +268,10 @@ https://web.archive.org/web/20021230200601/http://www.unirule.org.cn/symposium/s
 https://d.wanfangdata.com.cn/periodical/QK200401951166
 ![茅于轼温铁军放贷图](https://github.com/MoslinZ/MaoYuShi/blob/main/QK200401951166.jpg)
 
+茅于轼早期放贷雏形
+https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
+![茅于轼放贷雏形](https://github.com/MoslinZ/MaoYuShi/blob/main/indexE14.htm.jpg)
+
 # Jing Wang 王瑾
 Jing Wang
 MIT麻省理工学院新媒体行动实验室
