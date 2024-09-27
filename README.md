@@ -261,6 +261,13 @@ https://web.archive.org/web/20030201225715/http://www.unirule.org.cn/Academia/in
 1995年天则双周学术讨论会『茅于轼温铁军』
 https://web.archive.org/web/20021230200601/http://www.unirule.org.cn/symposium/sympo95.html
 
+苏北农村设立第一家民间扶贫基金-著名经济学家茅于轼、温铁军提供启动基金【中国改革（农村版）2004.03】
+页数：
+3 (43-45)
+
+https://d.wanfangdata.com.cn/periodical/QK200401951166
+![茅于轼温铁军放贷图](https://github.com/MoslinZ/MaoYuShi/blob/main/QK200401951166.jpg)
+
 # Jing Wang 王瑾
 Jing Wang
 MIT麻省理工学院新媒体行动实验室
