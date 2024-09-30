@@ -1,8 +1,8 @@
-# 公知温铁军现形记与茅于轼NGO履历梳理【温铁军github】『茅于轼github』Wen Tiejun
+# 温铁军与茅于轼NGO履历梳理【温铁军github】『茅于轼github』
 
 篇幅有限，更多内容请看超长存档👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
-持续更新温铁军公知茅于轼NGO履历👆👆👆
+文档持续更新👆👆👆
 
 ### :blush:详情介绍
 搜狐网2004年温铁军专栏个人详情
