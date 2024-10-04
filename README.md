@@ -463,3 +463,59 @@ https://web.archive.org/web/20030811221009/http://www.unirule.org.cn/policy/govr
 
 茅于轼小额信贷运营实例（水龙头）
 https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information/Reportonlst.htm
+
+# 晏阳初乡村建设学院友情链接（主线好像都与基督教相关）
+https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
+![友情链接网站](https://github.com/MoslinZ/MaoYuShi/blob/main/www.yirr.ngo.cn2%20(1).jpg)
+
+爱德基金会（在中国推广基督教）现存
+https://web.archive.org/web/20041010214429/http://www.amityfoundation.org.cn/index/index.php
+1995.07 爱德印刷有限公司完成一千万册《圣经》
+https://web.archive.org/web/20041029022240/http://www.amityfoundation.org.cn/html/jgjj-a1985.htm
+https://web.archive.org/web/20041028203030/http://www.amityfoundation.org.cn/html/jgjj.htm
+https://web.archive.org/web/20041029022503/http://www.amityfoundation.org.cn/html/jgjj-d.htm
+![基督成员包括政府官员](https://github.com/MoslinZ/MaoYuShi/blob/main/jgjj-d.htm.jpg)
+爱德基金董事长：
+丁光训
+全国政协副主席
+中国基督教三自爱国运动委员会名誉主席
+中国基督教协会名誉会长
+金陵协和神学院院长
+
+爱德基金副董事长：
+陈邃衡
+原全国人大常委会委员
+原江苏省政协副主席
+中国民主建国会中央委员会名誉副主席
+江苏省民主建国会名誉主任委员
+
+韩文藻
+原全国政协常委
+原江苏省政协副主席
+中国基督教全国两会咨询委员会主任
+
+翁振进
+江苏省九届政协常委
+江苏省海外联谊会副会长
+
+王菊珍 女
+原全国政协委员
+中国基督教三自爱国运动委员会副主席
+
+丁言仁
+南京大学外国语学院教授
+
+# 北京行知学校（陶行知居然也是基督徒！）
+陶行知（本名陶文濬）参与发起成立中华平民教育促进会（跟晏阳初巧合了？！），胡适将陶行知引荐给了约翰.杜威（还有高手？！）
+
+https://web.archive.org/web/20040928203352/http://www.21xz.org.cn/Article_Show.asp?ArticleID=828
+
+https://zh.wikipedia.org/zh-hans/%E9%99%B6%E8%A1%8C%E7%9F%A5?wprov=sfla1
+
+https://web.archive.org/web/20240125215126/https://baike.baidu.com/item/%E9%99%B6%E8%A1%8C%E7%9F%A5/843052
+![陶行知基督徒](https://github.com/MoslinZ/MaoYuShi/blob/main/Article_Show.asp.jpg)
+给哥伦比亚大学师范学院院长J·E·罗素的一封信
+亲爱的罗素院长：
+
+1916年2月16日
+于哥伦比亚大学哈特莱大楼1010号
