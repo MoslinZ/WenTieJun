@@ -4,7 +4,7 @@
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 文档持续更新👆👆👆
 
-### :blush:三农公知温铁军详情介绍
+### :blush:“三农”公知温铁军详情介绍
 搜狐网2004年温铁军专栏个人详情
 https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/79/article220157998.shtml
 
