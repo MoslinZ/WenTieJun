@@ -404,13 +404,19 @@ https://web.archive.org/web/20051229172432/http://www.china-ifp.org/field.htm
 https://web.archive.org/web/20051227043017/http://www.china-ifp.org/list.htm
 
 中国多个大学高校“福特基金会国际奖学金项目”开始申请通告
-中央财经大学https://web.archive.org/web/20230811202529/http://kyc.cufe.edu.cn/info/1011/1415.htm
+
+中央财经大学
+https://web.archive.org/web/20230811202529/http://kyc.cufe.edu.cn/info/1011/1415.htm
+
 兰州大学
 https://web.archive.org/web/20230811202335/https://news.lzu.edu.cn/c/200504/lmc1638.html
+
 中国人民大学
 https://web.archive.org/web/20230811202125/http://econ.ruc.edu.cn/dtjs/dtdt/e17d0c4db2e3423c92e7281e08a0db2d.htm
+
 厦门大学
 https://web.archive.org/web/20230811202017/https://se.xmu.edu.cn/info/1060/10969.htm
+
 东北师范大学
 https://web.archive.org/web/20230810052348/http://wzhongxin.nenu.edu.cn/info/1052/1100.htm
 
